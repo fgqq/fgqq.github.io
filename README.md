@@ -1,5 +1,10 @@
-# 【富贵论坛】信誉QQ号商 认准唯一网址 fgqq.github.io
+# 更新6位QQ，租售收5位QQ，6位QQ，各类QQ靓号，欢迎选购
 ![avatar](_media/996616.gif)
+
+富贵论坛多年信誉号商 无任何纠纷 信誉请放心 欢迎咨询
+联系QQ：10063607<a target="_blank" href="http://wpa.qq.com/msgrd?v=3&uin=10063607&site=qq&menu=yes"><img border="0" src="http://wpa.qq.com/pa?p=2:10063607:51" alt="点击这里给我发消息" title="点击这里给我发消息"/></a>  微信：17607168880
+认准唯一网址 fgqq.github.io
+
 ## 5位
 16816      一切可用     没人脸     168开16尾巴发财abc价格80000
 
