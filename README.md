@@ -1,5 +1,5 @@
 # 【富贵论坛】八年信誉号商 认准唯一网址 fgqq.github.io
-![avatar](_media/996616.gif)
+[![avatar](_media/996616.gif)](http://wpa.qq.com/msgrd?v=3&uin=10063607&site=qq&menu=yes)
 ## 5位
 16816      一切可用     没人脸     168开16尾巴发财abc价格80000
 
